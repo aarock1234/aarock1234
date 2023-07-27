@@ -1,1 +1,1 @@
-#### 19 year old software engineer with backround in web security, automation, and manipulation.
+#### 20-year-old software engineer with a web security, automation, and manipulation background.
