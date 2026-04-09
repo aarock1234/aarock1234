@@ -1,1 +1,1 @@
-#### Software engineer with a background in security.
+Software engineer with a background in web security; previously @vercel.
